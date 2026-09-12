@@ -1,16 +1,20 @@
-## Hi there 👋
+<p align="center">
+<img src="https://file.garden/alqc1dqplE9QfpOY/Untitled323_20260912024157.png" width="550">
+</p>
 
-<!--
-**greendeltarune/greendeltarune** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+　
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 　　　　　　　　　　　　　　　　　　　　　　　　　　 [strawpage](https://ribbon-gun.straw.page/)　　　[atabook](https://tv-world.atabook.org/)
+  
+</p>
+
+
+</p>
+
+<p align="center">
+　
+</p>
